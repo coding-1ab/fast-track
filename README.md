@@ -1,4 +1,4 @@
-# FAST TRACK
+# 📰 FAST TRACK
 
 > IT 전문 언론사 Fast track 입니다. 
 
